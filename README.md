@@ -91,3 +91,6 @@ TR Non-Commercial Defense License v1.0 - 詳細は LICENSE 参照
 ---
 
 TR桶狭間戦略 — 好きなの使ってね❤ でも商用は相談してね
+
+公式ページ:https://choiizuka.com/tr-audit/
+(C)CHOIIZUKA.COM Truth-Science.
